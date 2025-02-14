@@ -1,2 +1,0 @@
-# namontuj.sk
-Namontuj.sk
